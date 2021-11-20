@@ -1,3 +1,5 @@
 ### Hi there, I'm Beetlebum.
 
-Blablubb Test.
+[Instagram](https://www.instagram.com/jkbeetle/)
+[Twitter](https://twitter.com/beetlebum)
+[Website](http://www.beetlebum.de)
